@@ -1,0 +1,1 @@
+# coincollector-git.hub.com-sucks
